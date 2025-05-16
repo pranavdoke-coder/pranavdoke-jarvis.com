@@ -1,1 +1,1 @@
-# pranavdoke-jarvis.com
+# pranavdoke-dictionary.com
